@@ -23,3 +23,6 @@ We’re crafting something **special**, and the best part is, this is just the b
 
 📌 [GitHub](https://github.com/eatrainbows)  
 📢 **More soon. Maybe.** 👀
+
+---
+Proudly building fun from **Catania**, **Italy**. 🇮🇹
